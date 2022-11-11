@@ -1,1 +1,1 @@
-# AI Hub
+# AI Hub profile
